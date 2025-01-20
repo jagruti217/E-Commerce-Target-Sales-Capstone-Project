@@ -117,6 +117,10 @@ If you want to explore the project or have questions, feel free to connect with 
 💼 **LinkedIn:** https://www.linkedin.com/in/jagruti-jadhav-0275192a8
 👨‍💻 **GitHub:** https://github.com/jagruti217
 
+📧 **Email:** @gmail.com 
+💼 **LinkedIn:** https://www.linkedin.com/in/
+👨‍💻 **GitHub:** https://github.com
+
 **Thankyou for Watching🥳🎉**
 
 
