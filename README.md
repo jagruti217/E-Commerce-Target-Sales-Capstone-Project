@@ -113,13 +113,9 @@ These recommendations aim to create a more robust business strategy that not onl
 ## **📧 Connect with Me**  
 If you want to explore the project or have questions, feel free to connect with me:  
 
-📧 **Email:** jagrutijadhav21@gmail.com
-💼 **LinkedIn:** https://www.linkedin.com/in/jagruti-jadhav-0275192a8
-👨‍💻 **GitHub:** https://github.com/jagruti217
-
-📧 **Email:** @gmail.com 
-💼 **LinkedIn:** https://www.linkedin.com/in/
-👨‍💻 **GitHub:** https://github.com
+📧 **Email:** jagrutijadhav21@gmail.com  
+💼 **LinkedIn:** https://www.linkedin.com/in/jagruti-jadhav-0275192a8  
+👨‍💻 **GitHub:** https://github.com/jagruti217  
 
 **Thankyou for Watching🥳🎉**
 
